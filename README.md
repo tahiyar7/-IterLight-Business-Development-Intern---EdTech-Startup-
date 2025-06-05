@@ -8,7 +8,7 @@ Tahiya Rahman<br>
 “Hi, I work with IterLight — we help students succeed without the overwhelm. It sounds like your child is right at that stage where a little expert guidance could go a long way. Here’s my card — we specialize in personalized academic coaching tailored to each student’s goals and stress points.”
 
 Follow-up question:<br>
-“May I ask — is it the college process that’s most overwhelming, or are there academic gaps you’re worried about too?”
+“May I ask, is it the college process that’s most overwhelming, or are there academic gaps you’re worried about too?”
 
 💡 Bonus: Keywords that scream “This parent needs IterLight ASAP”<br>
 “Overwhelmed”<br>
