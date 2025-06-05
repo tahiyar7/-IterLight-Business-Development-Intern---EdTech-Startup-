@@ -4,8 +4,7 @@
 Tahiya Rahman<br>
 📍 Apex, NC | 📧 toc764@gmail.com | 📞 984-212-0889
 
-🎯 #
-Part 1: The Parent Whisperer (Coffee Shop Scenario)<br>
+🎯 Part 1: The Parent Whisperer (Coffee Shop Scenario)<br>
 “Hi, I work with IterLight — we help students succeed without the overwhelm. It sounds like your child is right at that stage where a little expert guidance could go a long way. Here’s my card — we specialize in personalized academic coaching tailored to each student’s goals and stress points.”
 
 Follow-up question:<br>
