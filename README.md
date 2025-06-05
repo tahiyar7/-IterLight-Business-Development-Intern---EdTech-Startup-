@@ -12,13 +12,9 @@ Follow-up question:<br>
 
 💡 Bonus: Keywords that scream “This parent needs IterLight ASAP”<br>
 “Overwhelmed”<br>
-
 “College prep”<br>
-
 “I don’t know how to help anymore”<br>
-
 “Burnt out”<br>
-
 “So competitive”<br>
 
 Tagline for the parent:<br>
