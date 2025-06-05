@@ -1,5 +1,4 @@
-# -IterLight-Business-Development-Intern---EdTech-Startup-
-IterLight Business Development Intern Assignment Submission
+
 
 🌟 IterLight Business Development Intern Assignment Submission 🌟
 Tahiya Rahman
