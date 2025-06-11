@@ -39,7 +39,7 @@ Poster banner: “Overwhelmed by College Prep? Let’s Make a Plan.”<br>
 30-second looping screen showing testimonials + how IterLight helps<br>
 
 🗣️ 30-Second Elevator Pitch:<br>
-“Hi there! At IterLight, we partner with families to take the confusion out of education planning — from K-12 all the way to college. Whether you’re juggling AP classes, extracurriculars, or just trying to figure out what matters most on college apps, we’ll create a custom roadmap for your child. Best of all? It's expert-guided and stress-minimizing. Take 30 seconds to write a note to your ‘Future You’ and get a roadmap to match.”
+“Hi there! At IterLight, we partner with families to take the confusion out of education planning, from K-12 all the way to college. Whether you’re juggling AP classes, extracurriculars, or just trying to figure out what matters most on college apps, we’ll create a custom roadmap for your child. Best of all? It's expert-guided and stress-minimizing. Take 30 seconds to write a note to your ‘Future You’ and get a roadmap to match.”
 
 ## 🔥 Part 3: The “What If” Moment (Competitor Charges 50% Less)<br>
 “IterLight isn’t just about cost, it’s about clarity and confidence. While others may undercut on pricing, we invest in real human expertise and proprietary tools that adapt to each student’s unique path. Our support is proactive, not reactive, that means fewer missed deadlines, smarter choices, and a student who feels empowered instead of overwhelmed.”
